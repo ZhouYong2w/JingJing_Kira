@@ -1,1 +1,2 @@
-FUCKFUCKFUCLKFUCK
+思念像开在心里的花
+就这样盛开又枯萎
