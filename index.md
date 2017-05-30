@@ -8,6 +8,8 @@
 ### 也是最后一次了
 ###      
 ### 我也喜欢听《十面埋伏》
+> 何以我来回巡逻
+> 偏仍然与你擦肩
 ### 有次看到你微博发了仙一的照片我连忙跑去 就在体育馆那个拐角和你擦肩而过 你正要回去了 没有看见我 我也没有出声
 > 全城来撞你但最后 处处有险阻
 ## ![TRY](http://r.photo.store.qq.com/psb?/V14UVIPH2fOBeM/x6g0Y4nQzKUtzS4LUkOXg951BNaymy4EEXBGxja*PBk!/r/dG4BAAAAAAAA)
